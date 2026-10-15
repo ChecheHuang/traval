@@ -673,6 +673,17 @@
 
 ## 📦 寄到飯店的包裹（猛健樂）
 
+> ### 📨 進度：已於 2026-10-15 寄信詢問，**等待飯店回覆**
+>
+> 寄件 `qwerfcxzas1@gmail.com` → 收件 `dynastyhotel.resort.osaka@gmail.com`
+> 主旨 `Package Delivery & Refrigeration Request - HUANG SHENG WEI (Oct 19-21)`
+> 問了兩件事：**能否代收**、**能否冷藏 2–8°C**
+>
+> 🔴 **飯店回覆前先別讓妹妹下單** —— 答案會決定這件事做不做得成
+> 💡 這間用 Gmail 當客服信箱，回覆可能不快；**人在日本也要持續看這個信箱**
+
+---
+
 > 收件地：**Dynasty Hotel & Resort Osaka**　〒543-0071 大阪市天王寺区生玉町 2-2
 > 收件人：**HUANG SHENG WEI**（護照英文名，加註中文名更保險）
 > 🔴 **送達時間窗：10/19 15:00 ～ 10/21 10:00** —— 只住這兩晚，早到或晚到都收不到
